@@ -49,4 +49,5 @@ Kesintisiz Güncelleme: Telegram algoritma mı değiştirdi? Biz hemen güncelli
 Kendi topluluğunu sıfırdan, kemik bir kitleyle kurmak isteyenler.
 Affiliate pazarlamacılar ve e-ticaret sahipleri.
 Müşterilerine Telegram hizmeti veren ajanslar.
-https://www.youtube.com/watch?v=4K2raivKhAg&t=1s
+KULLANIM İÇİN İZLLEYİN:https://www.youtube.com/watch?v=4K2raivKhAg&t=1s
+<img width="1918" height="1017" alt="1160221330" src="https://github.com/user-attachments/assets/379fb59b-cda1-4853-939d-4a811b4555a8" />
